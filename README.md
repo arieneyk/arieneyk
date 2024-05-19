@@ -9,3 +9,6 @@ Prazer, meu nome é Ariene, mas pode me chamar de Ari.
 - 🌱 Estou aprimorando meus conhecimento para migrar para área de QA  ...
 - ⚡ Hobby:  Quebra-Cabeça, Artesanato, Cubo Mágico, Leitura e Corrida  🧮🎨🎲📚🏃‍♀️
 
+[Linkedin](https://www.linkedin.com/in/arienekoike/)
+
+
