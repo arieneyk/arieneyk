@@ -1,5 +1,5 @@
 ### Hi there 👋
-Prazer, meu nome é Arien, mas pode me chamar de Ari.
+Prazer, meu nome é Ariene, mas pode me chamar de Ari.
 
 
 ✨Liitle Bit More About Me
